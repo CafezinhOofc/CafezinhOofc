@@ -1,0 +1,4 @@
+- 💜 Olá me chamo Cafe Edits.
+- 🤖 Eu fiz um robô no DBD (Discord For Desing).
+- 🔥 Link do bot: (Indisponível)
+- 💅 Passarei aqui para add comandos do meu bot.
